@@ -1,0 +1,6 @@
+Be an alien...
+
+Love Python...
+But married nodejs
+
+Favourite youtube channels -Clever programmers, telusko, socratica, codeWithMosh, VJTechnoWizard etc
